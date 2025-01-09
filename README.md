@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JourneyCreates
+- 👀 I’m interested in making my own website and riding horses
+- 🌱 I’m currently learning how to code
+- 😄 Pronouns: she/her/they/them
+- I'm looking on how to make a new website so if you want check it out and leave reviews once it is published!
